@@ -12,6 +12,8 @@
 
 ## Materials and Supplies
 
+* [Rockler Woodworking](https://www.rockler.com/retail/stores/wa-seattle-store) (based in MN)
 * [Seattle ReCreative](https://www.seattlerecreative.org/)
 * [Seattle REconomy](https://seattlereconomy.org/)
+* TAP Plastics - [Seattle](https://www.tapplastics.com/about/locations/detail/seattle_wa) | [Lynwood](https://www.tapplastics.com/about/locations/detail/lynnwood_wa) | [Bellevue](https://www.tapplastics.com/about/locations/detail/bellevue_wa)
 * [Vetco Electronics](https://vetco.net/)
